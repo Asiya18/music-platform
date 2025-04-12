@@ -1,2 +1,2 @@
 # music-platform
-https://asiya18.github.io/music-platform/
+https://musiclover.com.io/music-platform/
